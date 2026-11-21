@@ -6,11 +6,11 @@
 <p align="center">
   ⊹ ࣪ ˖ ໒꒱
   <br>
-  15
-  <br>
+  15, any pronouns
+  <br><br>
   c + h + k freely , iwc .
   <br><br>
-  mcharrison + starrison lover
+ ⌞  mcharrison—starrison enthusiast :3 ⌝
 </p>
 <!--
 **,bamcloudreo/bamcloudreo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
