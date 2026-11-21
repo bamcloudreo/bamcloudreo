@@ -1,4 +1,4 @@
-![MY BANNER](img_2873.jpeg)
+<img src="https://raw.githubusercontent.com/bamcloudreo/bamcloudreo/main/IMG_2873.jpeg" width="100%">
 
 <!--
 **bamcloudreo/bamcloudreo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
