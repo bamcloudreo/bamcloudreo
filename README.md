@@ -6,7 +6,11 @@
 <p align="center">
   ⊹ ࣪ ˖ ໒꒱
   <br>
+  15
+  <br>
   c + h + k freely , iwc .
+  <br><br>
+  mcharrison + starrison lover
 </p>
 <!--
 **,bamcloudreo/bamcloudreo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
