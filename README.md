@@ -2,6 +2,12 @@
   <img src="https://raw.githubusercontent.com/bamcloudreo/bamcloudreo/main/IMG_2873.jpeg" width="70%">
 </p>
 
+
+<p align="center">
+  ⊹ ࣪ ˖ ໒꒱
+  <br>
+  c + h + k freely , iwc .
+</p>
 <!--
 **,bamcloudreo/bamcloudreo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
