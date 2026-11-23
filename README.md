@@ -10,7 +10,7 @@
   <br><br>
   c + h + k freely , iwc .
   <br><br>
- ⌞  mcharrison—starrison enthusiast :3 ⌝
+ ⌞  mcharrison enthusiast :3 ⌝
 </p>
 <br><br>
 <p align="center">
