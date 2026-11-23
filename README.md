@@ -12,7 +12,6 @@
   <br><br>
  ⌞  mcharrison—starrison enthusiast :3 ⌝
 </p>
-
 <br><br>
 <p align="center">
   <img src="./DC4783E0-4F5C-4296-A2B2-2FC1B36D4B72.gif" width="300">
