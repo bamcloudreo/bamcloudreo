@@ -10,7 +10,7 @@
   <br><br>
   c + h + k freely , iwc .
   <br><br>
- ⌞  mcharrison enthusiast :3 ⌝
+ ⌞  mcharrison enthusiast :3, i enjoy all pairings too ! ⌝
 </p>
 <br><br>
 <p align="center">
